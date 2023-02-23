@@ -1,7 +1,7 @@
 - 👋  Hi, I’m @Forkan01
 - 👀 Full Name: Abdullah Al Forkan
 - 🏫 I'm doing bechelor in Hochschule Hamm-Lippstadt
-- 🌱 I’m currently studying Electronics Engineering
+- 🌱 I’m currently studying Electronic Engineering
 - 👨🏻‍💻 I’m looking to collaborate on Electronic projects.
 - 📫 How to reach me:
       📚 Abdullah-Al.Forkan@stud.hshl.de

@@ -5,7 +5,7 @@
 - 👨🏻‍💻 I’m looking to collaborate on Electronic projects.
 - 📫 How to reach me:
       📚 Abdullah-Al.Forkan@stud.hshl.de
-      📌 Forkan.German@gmail.com
+      📌 AAForkan29@gmail.com
 - 📞 Phone: +4917632549650
 
 <!---
